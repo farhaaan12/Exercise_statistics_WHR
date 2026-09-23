@@ -1,0 +1,1 @@
+Analisis ini menguji dinamika tingkat kebahagiaan Indonesia sepanjang 2021–2026 berdasarkan data World Happiness Report 2026, sekaligus membandingkan capaian nasional terhadap negara-negara di kawasan Asia Tenggara. 
